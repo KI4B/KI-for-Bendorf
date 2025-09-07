@@ -1,6 +1,6 @@
 # Team KI4B
 
-  Tanja Busch – Gründerin, Ideengeberin & Stimme von KI4B
+Tanja Busch – Gründerin, Ideengeberin & Stimme von KI4B
 Zertifizierte Vertriebswirtin (Schwerpunkt strategische Beratung), Autorin und Content Creator.
 
 Ich bringe Ideen in Bewegung, verbinde Menschen und entwickle die inhaltliche sowie kommunikative Seite von KI4B. Mein Antrieb ist es, Herz, Struktur und Vision zu vereinen – für ein menschliches, digitales Miteinander mit Zukunft.
